@@ -22,4 +22,5 @@ ANY MISTAKE FOUND IN THOSE AUDIO FILES WAS NOT INTENDED.
 For more information , please contact me at 
 lugandaquran@gmail.com.
 
+Sorry for bringing you over here but I really had no option my brothers and sisters.
 Thank you.
